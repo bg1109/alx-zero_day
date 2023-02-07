@@ -1,0 +1,1 @@
+Abdul is a computer
