@@ -1,1 +1,1 @@
-Abdul is a computer
+Abdul is not a computer
